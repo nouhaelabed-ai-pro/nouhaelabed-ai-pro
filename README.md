@@ -24,7 +24,7 @@ I am always open to collaborating with forward-thinking teams on projects that l
 
 ### 📫 How to Reach Me
 
-- **Email**: [your.email@example.com](nouhaelabed.pro@gmail.com)
+- **Email**: [nouhaelabed.pro@gmail.com](nouhaelabed.pro@gmail.com)
 - **LinkedIn**: ([https://www.linkedin.com/in/your-profile/](https://www.linkedin.com/in/nouha-el-abed/))
 
 ### ⚡ Fun Facts
