@@ -42,7 +42,6 @@ I’m always eager to collaborate with innovative teams on AI-driven projects th
 ### ⚡ Fun Facts
 
 - Chess enthusiast and strategy game lover.
-- Passionate about learning languages—currently enhancing my French and English skills.
 
 ---
 
